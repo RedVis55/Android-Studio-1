@@ -1,0 +1,1 @@
+Met deze app kan Mr. Potatohead aan- en uitgekleed worden.
